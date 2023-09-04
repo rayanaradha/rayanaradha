@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **rayanaradha1993@gmail.com**
 
-- ⚡ Fun fact **Truth can only be found in one place: the code**
+- ⚡ Fun fact **Truth can only be found in one place: The code**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
